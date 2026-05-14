@@ -1,4 +1,4 @@
-# 
+# Enhance MathType for PC | MathType for Windows with MathType for PC | MathType for Windows advanced Addon: graph-customization & import-export, the #1 addon. Includes
 
 
 
